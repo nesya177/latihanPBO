@@ -1,0 +1,10 @@
+# latihanPBO
+![Alt Text](https://github.com/nesya177/latihanPBO/blob/master/CODENG%20TROS!%2009_10_2019%2013.40.31.png)
+![Alt Text](https://github.com/nesya177/latihanPBO/blob/master/jobsheet1%20-%20NetBeans%20IDE%208.2%2008_10_2019%2010.17.15.png)
+![Alt Text](https://github.com/nesya177/latihanPBO/blob/master/jobsheet1%20-%20NetBeans%20IDE%208.2%2008_10_2019%2010.21.36.png)
+![Alt Text](https://github.com/nesya177/latihanPBO/blob/master/jobsheet1%20-%20NetBeans%20IDE%208.2%2008_10_2019%2010.26.57.png)
+![Alt Text](https://github.com/nesya177/latihanPBO/blob/master/jobsheet1%20-%20NetBeans%20IDE%208.2%2008_10_2019%2010.36.07.png)
+![Alt Text](https://github.com/nesya177/latihanPBO/blob/master/jobsheet1%20-%20NetBeans%20IDE%208.2%2008_10_2019%2010.42.42.png)
+![Alt Text](https://github.com/nesya177/latihanPBO/blob/master/jobsheet1%20-%20NetBeans%20IDE%208.2%2008_10_2019%2010.50.59.png)
+![Alt Text](https://github.com/nesya177/latihanPBO/blob/master/jobsheet1%20-%20NetBeans%20IDE%208.2%2008_10_2019%2011.07.41.png)
+![Alt Text](https://github.com/nesya177/latihanPBO/blob/master/jobsheet1%20-%20NetBeans%20IDE%208.2%2009_10_2019%2013.39.51.png)
